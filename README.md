@@ -1,4 +1,4 @@
-### Hi I am Hanifa 👋
+### Hi I am Nifa 👋
 
 # 💫 About Me:
 I like code, errors, bugs, chocolate, ice cream, sunrise, and you.<br>I always try to find errors when I write code.<br>I have first business in IT world, namely NifSite. <br>I love coding since I was 16 yo.<br>
